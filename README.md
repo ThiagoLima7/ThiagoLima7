@@ -1,5 +1,5 @@
 # 💫 About Me:
-I.T Consultant and hopefully a future Project Manager. currently a trilingual and aspiring polyglot
+I.T Consultant and hopefully a future Project Manager. currently trilingual and aspiring polyglot
 
 
 ## 🌐 Socials:
